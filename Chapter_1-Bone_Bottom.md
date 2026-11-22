@@ -1,4 +1,4 @@
-<ins>Chapter 1 - The Bone Bottom<ins>
+**<ins>Chapter 1 - The Bone Bottom<ins>**
 
 I feel horrible. Those veiled bugs, the kidnapping from Hallownest…
 
