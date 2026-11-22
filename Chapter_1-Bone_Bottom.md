@@ -7,7 +7,7 @@ The little Ghost’s empty mask.
 It’s all too much.
 
 Clink.
-Clank,
+Clank.
 Clang.
 
 My needle! It nearly impaled me in the mask, goodness.
