@@ -18,7 +18,7 @@ Well, first of all, play the orignal Hollow Knight, of course. Which I'm doing r
 But then I heard about book writing as a hobby, and I thought that maybe I could channel my experience in the world of Bells and Spiders into writing.
 And I added an extra challenge; I would not watch anything relating to Silksong, or even play it through in the writing of this. This is in order for me to do this completely by memory in order to train it, and maybe to tease my knowledge of the lore and route of this game.
 
---
+---
 
 I hope you enjoy reading this story, or even watching me write it, if you're interested in the making of this.
 It's written from the perspective of Hornet, and may also be used as a rough True Ending guide, but is literally all spoilers.
