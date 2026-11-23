@@ -19,6 +19,8 @@ I look around. A fairly peaceful area, covered in moss and greenery. In stark co
 
 Nothing happens.
 
+---
+
 It’s as if I’ve forgotten everything I’d spent years training at Hallownest with. I test it out. I can’t summon Silk to perform a Silk Spear.
 Even my signature Thread Storm is gone. I try to taunt whoever is around, but I can’t produce any new Silk from my shell. The only thing I can do is bind.
 
@@ -28,6 +30,8 @@ I look at my perfect needle.
 It’s devastated. Ruined. Tarnished. My most treasured gift, from the Queen of the Hive, Vespa herself. Blunted.
 
 I hate this so much.
+
+---
 
 I keep walking, and find small, mossy , slightly spiky creatures. Quite sharp spikes, after closer inspection. Closer inspection being, trying to pet one and having my palm punctured by a handful of thorns. I’m stupid, of course it would hurt, they’re spikes. Has Father’s stupid saw-blade obsession taught me nothing? I stab my needle into the thing in rage. It is visibly wounded, but my pure needle would have decimated it.
 
@@ -42,6 +46,8 @@ And I miss.
 And fall.
 I catch myself on a ledge right next to a string of something. A string of red things. I pick it up. The string is frayed and worn, but the red things are shiny. I pick it up. Very shiny, and smooth.
 
+---
+
 I remember.
 The shininess of the Radiance’s orange infection, how it shimmered, a false light that only sought to destroy Hallownest.
 
@@ -54,6 +60,8 @@ I see a door, and try and sprint to it. Except I can’t. Because my dense brain
 The door looks like my mother’s mask. Herrah’s mask.
 
 The little ghost, looking at me, asking consent to execute her without a voice. Because he was the one with no voice to cry suffering. Not Hollow. Not after that scream that called the children of the Abyss. I told him that I would let him do the deed, as long as he saved our kingdom, but I would not watch him do it. And I left the room to let my mother die.
+
+---
 
 The door seems to be operated by a mechanism that only opens using a harp. I try to prise the door open with my needle. It groans, and I realise it’s going to snap if I keep trying. So I make a mental note, and leave for now.
 The next room is simply a hallway, and returns to the mossy, overgrown aesthetic from before. Nothing interesting other than a tangle of vines at the end and what looks like a bony room.
@@ -78,6 +86,7 @@ And I can do nothing but contemplate how weak i've become as this stupid bug mau
 Well, I can do something.
 I concentrate hard on forming a cocoon of silk around myself, until finally, everything goes dark in a blur of thread.
 
+---
 ---
 
 I open my eyes lying on the bench, with loose strands of silk still hanging off from my cloak.
