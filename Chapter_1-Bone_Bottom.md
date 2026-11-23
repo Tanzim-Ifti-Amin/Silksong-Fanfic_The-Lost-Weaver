@@ -100,3 +100,37 @@ I run back up to the nest, and break apart the cocoon, absorbing the silk, even 
 The large moss bugs reappears, screaming at me as if to challenge me. I scream back equally as hard, and start slashing. It feels like slashing at Vespa again, my futile attempts at catching the hem of her royal robes, only for me to miss and get pinned down by my red cloak. Except this is not a royal bug. This isn't one of the three queens of Hallownest who raised me! This is a horrifying thing that deserves nothing but <ins>_death_<ins>!
 
 I thrust my blunt needle into the hostile moss bug's large stomach, withdrawing it in a sweeping arc. The bug finally bursts apart in death, and I realise I forgot to give it a name. It was obviously the mother of those eggs, and it was the biggest moss creature out of them all. The Moss Mother. A fitting name.
+
+---
+
+I walk past the nest, before finding a ladder. But there also seems to be a strange door in front of me, with the patternings of the Snail Shamans on it. I try to open the door. It doesnt budge. I decided to climb the ladder.
+
+Once I reach the top, I feel exhausted. I realise that I haven't had any proper rest in a few weeks. The few weeks after the Knight and The Hollow Knight fulfilled the purpose of the Shades and unified it under the Lord Of Shades. The kidnapping, the uncomfortable metal of the rune cage they put me in.
+My head begins to spin, and i trudge along slower and slower, until I come to a stop. I see the shadow of a person, and i cry out for help. But all they do is giggle as I fall to the ground, unconcious.
+
+---
+
+Tap.
+Tap, Tap.
+'Up with you! Up! I won't have you dying on my floor!'
+I wake up to a person beating me with a stick and bossing me around. Excellent. I get up and adopt my most agressive stance.
+
+'Ahh, awake at last! You should mind your strength, traveller. There's no use wasting energy on an old nobody like me.',
+says the maid. I can tell she is a maid by her simple, worn clothing. I take a deep breath and try to make my posh White Palace voice come to life. Time to prove I'm more Wyrm than Weaver. Ironic.
+
+'I see that now, madam. My welcome to your land has not been kind. I had reason to be wary.' I think about that fight from before, and decide to not go into the details of my defeat.
+
+'So you're another pilgrim then? Scuttled out of the darkness to climb the great path and bow at its gilded peak?' <ins>_HOW DARES THIS CRAZY WOMAN!!_<ins> To call me a common pilgrim, to assume I would like to grovel at the feet of a Higher Being! My father himself was a Higher being, beyond your understanding!
+I try to be polite, anyways.
+
+'I am no pilgrim. I am Hornet, and I arrive in your land by no choice of my own. I was brought to your kingdom by force, captured by strange bugs clad in veils.'
+Now I've blown it. I've shown how weak I am to be kidnapped by 5 small bugs and a heavy cage to this maid.
+
+'Oho! How curious! The bugs of the Citadel, at the summit of our land. They veil themselves in service to their faith, or perhaps as slaves to something greater...' Slaves? These bugs that managed to capture me, a demigod? SLAVES??? If these so-called slaves are so strong, then I must know who their master is.
+
+'Then I shall seek their Citadel. If the veiled bugs would go to such lengths to bring me here, I intend to find out why.' And I intend to kill their leader. If a group of common slaves have been commanded to even come near me, then their leader is my sworn enemy.
+
+'Oho! Ferocious! Intimidating! Yours is no pilgrim's spirit! You've the bearing of a hunter.' As if I wasn't a hunter before. As if I wasn't the sentinel of Hallownest, the grand slayer of the Vessels!
+'Welcome then, fierce traveller, to Pharloom! Our holy yet haunted land.' Holy? This place, holy? I look around at the rocky, bony, gloomy atmosphere. The god who resides here must not be faring well.
+
+/Before you depart, permit an old bug a brief warning. Best keep that weapon drawn. Our kingdom is gripped by a curse. Its paths grow wild and dangerous, and though some still attempt the climb to the Citadel at its crest, none return to speak of what they see.' The Citadel. Interesting. I shall find my way up there and challenge the god that commands this kingdom, then.
