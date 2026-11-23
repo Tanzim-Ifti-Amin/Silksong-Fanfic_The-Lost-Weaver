@@ -73,6 +73,8 @@ I saw him fighting The Hollow Knight with those shaman charms on.
 
 My knees buckle as I struggle to stay upright. Eventually, my weakened body feels like collapsing. I fight it, knowing that having to form a cocoon when I wasn’t even in combat would severely hurt my personal pride. I get up, and see a stone bench, like the one the Elderbug used to talk about, assuring an iron bench could also be comfortable. I sit on it, and it does seem quite nice. I focus and set myself to come here if I ever form a cocoon, for now.
 
+---
+
 I continue upwards, after healing on the bench for a while. I come across a wall of vines, which I slash through. And another. And another.
 
 I look around. This place is a nest. A nest of those green bugs. Expect these ones haven’t hatched yet. I swing my needle at one experimentally. It bursts with a pop, releasing disgusting green slime.
