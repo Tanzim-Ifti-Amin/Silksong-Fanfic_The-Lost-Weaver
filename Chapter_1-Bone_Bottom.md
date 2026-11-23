@@ -131,6 +131,10 @@ Now I've blown it. I've shown how weak I am to be kidnapped by 5 small bugs and 
 'Then I shall seek their Citadel. If the veiled bugs would go to such lengths to bring me here, I intend to find out why.' And I intend to kill their leader. If a group of common slaves have been commanded to even come near me, then their leader is my sworn enemy.
 
 'Oho! Ferocious! Intimidating! Yours is no pilgrim's spirit! You've the bearing of a hunter.' As if I wasn't a hunter before. As if I wasn't the sentinel of Hallownest, the grand slayer of the Vessels!
-'Welcome then, fierce traveller, to Pharloom! Our holy yet haunted land.' Holy? This place, holy? I look around at the rocky, bony, gloomy atmosphere. The god who resides here must not be faring well.
 
-/Before you depart, permit an old bug a brief warning. Best keep that weapon drawn. Our kingdom is gripped by a curse. Its paths grow wild and dangerous, and though some still attempt the climb to the Citadel at its crest, none return to speak of what they see.' The Citadel. Interesting. I shall find my way up there and challenge the god that commands this kingdom, then.
+'Welcome then, fierce traveller, to Pharloom! Our holy yet haunted land.' Holy? This place, holy? I look around at the rocky, bony, gloomy atmosphere. The god who resides here must not be faring well. Doesn't stop me from wanting to kill them, of course. Weak prey is always preferable.
+
+'Before you depart, permit an old bug a brief warning. Best keep that weapon drawn. Our kingdom is gripped by a curse. Its paths grow wild and dangerous, and though some still attempt the climb to the Citadel at its crest, none return to speak of what they see.' The Citadel. Interesting. I shall find my way up there and challenge the god that commands this kingdom, then. And if I find the nature of this curse, it may help me find out what this being is.
+
+---
+
