@@ -118,23 +118,29 @@ I wake up to a person beating me with a stick and bossing me around. Excellent. 
 'Ahh, awake at last! You should mind your strength, traveller. There's no use wasting energy on an old nobody like me.',
 says the maid. I can tell she is a maid by her simple, worn clothing. I take a deep breath and try to make my posh White Palace voice come to life. Time to prove I'm more Wyrm than Weaver. Ironic.
 
-'I see that now, madam. My welcome to your land has not been kind. I had reason to be wary.' I think about that fight from before, and decide to not go into the details of my defeat.
+'I see that now, madam. My welcome to your land has not been kind. I had reason to be wary,' I think about that fight from before, and decide to not go into the details of my defeat.
 
 'So you're another pilgrim then? Scuttled out of the darkness to climb the great path and bow at its gilded peak?' <ins>_HOW DARES THIS CRAZY WOMAN!!_<ins> To call me a common pilgrim, to assume I would like to grovel at the feet of a Higher Being! My father himself was a Higher being, beyond your understanding!
 I try to be polite, anyways.
 
-'I am no pilgrim. I am Hornet, and I arrive in your land by no choice of my own. I was brought to your kingdom by force, captured by strange bugs clad in veils.'
-Now I've blown it. I've shown how weak I am to be kidnapped by 5 small bugs and a heavy cage to this maid.
+'I am no pilgrim. I am Hornet, and I arrive in your land by no choice of my own. I was brought to your kingdom by force, captured by strange bugs clad in veils,' Now I've blown it. I've shown how weak I am to be kidnapped by 5 small bugs and a heavy cage to this maid.
 
 'Oho! How curious! The bugs of the Citadel, at the summit of our land. They veil themselves in service to their faith, or perhaps as slaves to something greater...' Slaves? These bugs that managed to capture me, a demigod? SLAVES??? If these so-called slaves are so strong, then I must know who their master is.
 
-'Then I shall seek their Citadel. If the veiled bugs would go to such lengths to bring me here, I intend to find out why.' And I intend to kill their leader. If a group of common slaves have been commanded to even come near me, then their leader is my sworn enemy.
+'Then I shall seek their Citadel. If the veiled bugs would go to such lengths to bring me here, I intend to find out why,' And I intend to kill their leader. If a group of common slaves have been commanded to even come near me, then their leader is my sworn enemy.
 
-'Oho! Ferocious! Intimidating! Yours is no pilgrim's spirit! You've the bearing of a hunter.' As if I wasn't a hunter before. As if I wasn't the sentinel of Hallownest, the grand slayer of the Vessels!
+'Oho! Ferocious! Intimidating! Yours is no pilgrim's spirit! You've the bearing of a hunter,' As if I wasn't a hunter before. As if I wasn't the sentinel of Hallownest, the grand slayer of the Vessels!
 
-'Welcome then, fierce traveller, to Pharloom! Our holy yet haunted land.' Holy? This place, holy? I look around at the rocky, bony, gloomy atmosphere. The god who resides here must not be faring well. Doesn't stop me from wanting to kill them, of course. Weak prey is always preferable.
+'Welcome then, fierce traveller, to Pharloom! Our holy yet haunted land,' Holy? This place, holy? I look around at the rocky, bony, gloomy atmosphere. The god who resides here must not be faring well. Doesn't stop me from wanting to kill them, of course. Weak prey is always preferable.
 
-'Before you depart, permit an old bug a brief warning. Best keep that weapon drawn. Our kingdom is gripped by a curse. Its paths grow wild and dangerous, and though some still attempt the climb to the Citadel at its crest, none return to speak of what they see.' The Citadel. Interesting. I shall find my way up there and challenge the god that commands this kingdom, then. And if I find the nature of this curse, it may help me find out what this being is.
+'Before you depart, permit an old bug a brief warning. Best keep that weapon drawn. Our kingdom is gripped by a curse. Its paths grow wild and dangerous, and though some still attempt the climb to the Citadel at its crest, none return to speak of what they see,' The Citadel. Interesting. I shall find my way up there and challenge the god that commands this kingdom, then. And if I find the nature of this curse, it may help me find out what this being is.
 
 ---
 
+I walk away from the snail shaman's dwelling, until I find myself at a small town. The town of Bone Bottom. Some of the people there wear loose, ragged clothing. One of them sits next to a campfire - like area lit by a Lumafly Lantern. They may be the pilgrims. I consult one of them, in the shops. And they start trying to rob me.
+
+Well, not rob me. They asked to 'share some rosaries' whilst looking over at the red string of beads in my pocket and leaning over the counter in a seductive way, but it was enough to make me walk away from the place. I glance at a little bug building what appears to be a public notice board.
+
+I walk out of the town. There does not appear to be a curse in the kingdom so far, except for the spiky moss bugs. And I definitely have not found out the nature of the curse. I can make the connection that these beads are this kingdom's currency, called 'Rosaries'. Which makes the Geo I had before the bugs kidnapped me, useless. They don't matter now, anyways.
+
+What I have found, though, is that the non-cursed residents of this place are creeps.
