@@ -69,9 +69,23 @@ I continue upwards, after healing on the bench for a while. I come across a wall
 
 I look around. This place is a nest. A nest of those green bugs. Expect these ones haven’t hatched yet. I swing my needle at one experimentally. It bursts with a pop, releasing disgusting green slime.
 
-And suddenly, a big one appears. Their mother. And she starts throwing rocks at me.
+And suddenly, a big one appears. Their mother. And she starts throwing rocks at me. And flying at me at Mach 1. I turn back, because I do not want to do this right now. But a sort of slime has blocked the ways in and out. And I realise there's only one way forward.
 
-‘GARAMA!!!!!!!!!!!!’ I scream as I launch into combat. The moss bug charges at me, but I dodge and punish this weak, foolish, helpless bug-
+‘GARAMA!’ I scream as I launch into combat. The moss bug charges at me, but I dodge and I hit it with my needle to punish this weak, foolish, helpless bug-
 
-My back breaks as a rock lands on me.
-And I can do nothing as this stupid bug mauls me to death.
+My back breaks as a rock lands on me. That it threw at me.
+And I can do nothing but contemplate how weak i've become as this stupid bug mauls me to death.
+Well, I can do something.
+I concentrate hard on forming a cocoon of silk around myself, until finally, everything goes dark in a blur of thread.
+
+---
+
+I open my eyes lying on the bench, with loose strands of silk still hanging off from my cloak.
+
+'I am a loser.'
+
+I run back up to the nest, and break apart the cocoon, absorbing the silk, even though I know I have nothing valuable I stored in there. I have to clean up the evidence of my previous defeat, don't I? A matter of honor.
+
+The large moss bugs reappears, screaming at me as if to challenge me. I scream back equally as hard, and start slashing. It feels like slashing at Vespa again, my futile attempts at catching the hem of her royal robes, only for me to miss and get pinned down by my red cloak. Except this is not a royal bug. This isn't one of the three queens of Hallownest who raised me! This is a horrifying thing that deserves nothing but <ins>_death_<ins>!
+
+I thrust my blunt needle into the hostile moss bug's large stomach, withdrawing it in a sweeping arc. The bug finally bursts apart in death, and I realise I forgot to give it a name. It was obviously the mother of those eggs, and it was the biggest moss creature out of them all. The Moss Mother. A fitting name.
