@@ -137,7 +137,7 @@ I try to be polite, anyways.
 
 ---
 
-I walk away from the snail shaman's dwelling, until I find myself at a small town. The town of Bone Bottom. Some of the people there wear loose, ragged clothing. One of them sits next to a campfire - like area lit by a Lumafly Lantern. They may be the pilgrims. I consult one of them, in the shops. And they start trying to rob me.
+I walk away from the snail shaman's dwelling, until I find myself at a small town. The town of Bone Bottom. Some of the people there wear loose, ragged clothing. One of them sits next to a campfire-like area lit by a Lumafly Lantern. They may be the pilgrims. I consult one of them, in the shops. And they start trying to rob me.
 
 Well, not rob me. They asked to 'share some rosaries' whilst looking over at the red string of beads in my pocket and leaning over the counter in a seductive way, but it was enough to make me walk away from the place. I glance at a little bug building what appears to be a public notice board.
 
